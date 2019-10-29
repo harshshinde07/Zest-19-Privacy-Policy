@@ -1,4 +1,4 @@
-## Privacy Policy
+## Privacy Policy for [Zest 19](https://play.google.com/store/apps/details?id=com.apps.harsh.zest)
 
 Harshvardhan built the Zest 19 app as a Free app. This SERVICE is provided by Harshvardhan at no cost and is intended for use as is.
 
